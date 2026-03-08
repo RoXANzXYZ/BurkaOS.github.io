@@ -1,1 +1,0 @@
-# BurkaOS.github.io
